@@ -7,7 +7,7 @@ I am a _**foodie, a traveler and a gamer**_. Three of the best thing in the worl
 
 These are the things I love to do:
 * Find new restaurants to try with my friends
-* Would love to travel and see all the wonders of the world
+* Would love to travel more and see all the wonders of the world
 * Try to play and buy the latest games either for PS4 or PC (getting into PC gaming now.)
 
 One of my favorite ramen place to got eat at: Menya Ultra (Ramen Ultra)!
