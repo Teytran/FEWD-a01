@@ -2,7 +2,7 @@
 FEWD assignment 1
 
 ## Introductions
-Hello there!! **Teah here**
+Hello there!! **Teah here**!!
 I am a _**foodie, a traveler and a gamer**_. Three of the best thing in the world to be. :-P
 
 These are the things I love to do:
