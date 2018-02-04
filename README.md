@@ -13,5 +13,5 @@ These are the things I love to do:
 One of my favorite ramen place to got eat at: Menya Ultra (Ramen Ultra)!
 ![Tonkotsu. Pork base broth](http://menya-ultra.com/images/menu/MenuTonkotsu640h.jpg)
 
-You can check out their website here [Menya Ultra]: (http://www.menya-ultra.com/index.html)
+You can check out their website here [Menya Ultra](http://www.menya-ultra.com/index.html)
 
