@@ -11,7 +11,7 @@ These are the things I love to do:
 * Try to play and buy the latest games either for PS4 or PC (getting into PC gaming now.)
 
 One of my favorite ramne place to got eat at: Menya Ultra (Ramen Ultra)!
-![Menya Ultra or Ramen Ultra](http://menya-ultra.com/MenyaUltraMenu.html#Ramen)
+![Menya Ultra or Ramen Ultra](http://menya-ultra.com/images/menu/MenuTonkotsu640h.jpg)
 
 You can check out their website here [Menya Ultra]: (http://www.menya-ultra.com/index.html)
 
